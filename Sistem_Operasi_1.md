@@ -8,8 +8,8 @@
 **Dr. Ferry Astika Saputra ST, M.Sc**
 
 #### Disusun oleh :
-**Muhammad Abdullah Husaini**
-**(3214521030)**
+**Brayen Prasetio**
+**(3214521001)**
 D3-LA IT-A
 
 ---
